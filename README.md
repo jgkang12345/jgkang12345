@@ -1,1 +1,1 @@
-![ef3b27fd85e9dec2aa8a3f488991439bdda30653269f21026b7f20bd7284c8ccbda62da5f6ec0681401a72f94e2c4705ad444b6486de09a2e08a7d3c34e27aa7a355de5f94914350e2807fbf16916cd4](https://user-images.githubusercontent.com/107315908/204554600-d02e79bb-1efc-409a-98db-869ee993eec8.gif)
+![Seul컴_뉴진스_Hype_Boy_민지03](https://user-images.githubusercontent.com/107315908/204555020-f20d13e2-8626-4e0c-8804-6df669f4872a.jpg)
